@@ -18,7 +18,7 @@
 
  dni below 14 and above 25 and basic criteria.
 
- taken  
+ taken
 
 𐔌 ﹒ ⋆ ꩜ ⋆ 𓂃 ₊ ⊹
 
@@ -33,7 +33,7 @@
 
 gliss , bart .
 
-he/him STRICTLY.
+he/him STRICTLY , i'm gay.
 
 i am in my 20s now. yay
 
