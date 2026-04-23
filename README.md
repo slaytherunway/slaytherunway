@@ -42,6 +42,8 @@ he/him STRICTLY , i'm gay.
 
 i am in my 20s now. yay
 
+i am employed ok? ok
+
 i like to draw, fashion and designing clothes. it's cool.
 
 i am somewhat flamboyant.
