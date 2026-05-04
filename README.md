@@ -25,7 +25,7 @@
 
  taken
 
-𐔌 ﹒ ⋆ ꩜ ⋆ 𓂃 ₊ ⊹
+‧₊˚♪ 𝄞₊˚⊹
 
 </details>
 
@@ -48,7 +48,7 @@ i like to draw, fashion and designing clothes. it's cool.
 
 i am somewhat flamboyant.
 
-𐔌 ﹒ ⋆ ꩜ ⋆ 𓂃 ₊ ⊹
+⋆.ೃ࿔*:･
 
 
 <div align="center">
