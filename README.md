@@ -34,7 +34,7 @@
 
 <details>
 
-<summary>info ᯓ★</summary>
+<summary>info ₊˚⊹⋆★ </summary>
 
 gliss , bart .
 
@@ -50,14 +50,23 @@ i am somewhat flamboyant.
 
 ⋆.ೃ࿔*:･
 
+<details>
 
+<summary> fandoms ♬⋆.˚･ </summary>
+
+♯ TDS , blocktales , dandys world , fnaf , dsaf , bear alpha ,,, etc
+
+♡⸝⸝ if your in these fandoms w2i! i don't mind making new friends.
+
+</details>
+  
 <div align="center">
 
 <details>
 
 <summary>comms ‧₊ ♪˚⊹</summary>
 
-[comms = open](https://electricifycomms.straw.page)
+♯ [comms = open](https://electricifycomms.straw.page)
 
 </details>
 
